@@ -16,4 +16,10 @@ English learning, English learning.
 
 Every dog has its lucky day .
 
+IPhone 8 :
+Hk : 6100 rmb
+CN : 7188 rmb
+
+huge differ...
+
 
